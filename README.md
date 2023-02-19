@@ -1,2 +1,2 @@
 emmi if youre seeing this i want you to know that you look like the onceler ❤️
-![image](https://user-images.githubusercontent.com/121141888/211228067-dc29ab2b-ed4b-4419-b66a-0595da200879.png)
+![image](https://cdn.discordapp.com/attachments/741062019989635093/1076980882155503726/Untitled1324_20230219213705.png)
