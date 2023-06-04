@@ -2,6 +2,8 @@ to osc area: i CAN and i WILL disrespect your pony town "tt/td" . any other area
 
 also stanley dni.
 
+byi i really like kaoru hakaze and i talk about him so much its annoying if u dont like him iwc cuz i wont shut up about thar ugly fuck
+
 this is my baby he is called logan he is 1 year old :3
 
 ![image](https://user-images.githubusercontent.com/88209648/189762057-546c7610-ce71-44ad-8b2e-cd082a8d4fb9.png)
