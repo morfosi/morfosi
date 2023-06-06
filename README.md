@@ -1,4 +1,4 @@
-to osc area: i CAN and i WILL disrespect your pony town "tt/td" . any other area idc im prolly offtab anyway.
+to osc area: i CAN and i WILL disrespect your pony town "tt/td" (systems exempt). any other area idc im prolly offtab anyway.
 
 also stanley dni.
 
