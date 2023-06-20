@@ -1,4 +1,4 @@
-dni if your name is stanley and you like ace attorney 17:58[franmaya] i bust a nut to edgeworths sprites (freak)
+dni if your name is stanley and you like ace attorney look at this.. wtf freak >> 17:58[franmaya] i bust a nut to edgeworths sprites
 
 i like kaoru hakaze a lot so iwc if u dont like him lol cuz i cant shut up abt him sowwy
 
