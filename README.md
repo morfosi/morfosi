@@ -1,4 +1,4 @@
-dni if your name is jira look at this.. wtf freak >> 17:58[franmaya] i bust a nut to edgeworths sprites
+dni if you are jira look at this.. wtf freak >> 17:58[franmaya] i bust a nut to edgeworths sprites
 
 i like kaoru hakaze a lot so iwc if u dont like him lol cuz i cant shut up abt him sowwy
 
