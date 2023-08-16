@@ -1,7 +1,3 @@
-dni if you are jira look at this.. wtf freak >> 17:58[franmaya] i bust a nut to edgeworths sprites
+my babies logan and elvis
 
-I TALK ABOUT LINK CLICK A LOT PLEASE BMF OR INTERACT WITH ME IF YOUVE SEEN IT
-
-this is my baby he is called logan he is turning 2 in september
-
-![image](https://user-images.githubusercontent.com/88209648/189762057-546c7610-ce71-44ad-8b2e-cd082a8d4fb9.png)
+![image](https://cdn.discordapp.com/attachments/741062019989635093/1141325455748759602/0MjIQNrDM6Pq4KAjgqetW5Ia9B7YfOpFYrHmAIwQTGytIxJmqwEPxfp9zvup0y82mfNKPaPMAzTTUX9tB2bP3Z2WVrpV5nEAAAAAElFTkSuQmCC.png) ![image](https://cdn.discordapp.com/attachments/741062019989635093/1141325456021409843/8HRdy3oMcYmTsAAAAASUVORK5CYII.png)
