@@ -1,3 +1,5 @@
+HELLO!!!!! i follow back most ppl but if ur one of those accounts that follow like every githubbie ever i wont ;-; sorry. it boosts my ego tho so continue
+
 my babies logan and elvis
 
 ![image](https://cdn.discordapp.com/attachments/741062019989635093/1141325455748759602/0MjIQNrDM6Pq4KAjgqetW5Ia9B7YfOpFYrHmAIwQTGytIxJmqwEPxfp9zvup0y82mfNKPaPMAzTTUX9tB2bP3Z2WVrpV5nEAAAAAElFTkSuQmCC.png) ![image](https://cdn.discordapp.com/attachments/741062019989635093/1141325456021409843/8HRdy3oMcYmTsAAAAASUVORK5CYII.png)
