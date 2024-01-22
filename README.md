@@ -1,4 +1,6 @@
-HELLO!!!!! i follow back most ppl but if ur one of those accounts that follow like every githubbie ever i wont ;-; sorry. it boosts my ego tho so continue
+HELLO!!!!! i follow back most ppl but if ur one of those accounts that follow like every githubbie ever i wont ;-; sorry. it boosts my ego tho so continue. 
+
+i also LOVE drawing in peoples strawpages if i see you have one 99% chance i will draw in it AND ILL BE CHECKING IT EVERY DAY TO MAKE SURE I KNOW YOUVE SEEN IT.
 
 my babies logan and elvis
 
