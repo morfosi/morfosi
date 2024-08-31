@@ -1,9 +1,6 @@
-most seen with my [bff](https://github.com/yaxikitty) ♡ or other friends
+DNI WEIRDO EX FRIENDS. you know who you are. 
 
-talk 2 me if u wanna bmf cuz i mainly dont interact first. im also mostly offtab so please w2i if youre not in my friends list cuz i most likely wont see it.
-
-my only dni is non asians using asian names (freak) and proshippers Um anything else i just wont interact if i dont like you
-
+whisper 2 interact !!! i am mostly off tab and will likely not see if you are trying to talk to me on public chat. :(
 
 my babies logan and elvis
 
